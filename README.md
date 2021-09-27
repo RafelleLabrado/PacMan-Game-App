@@ -9,7 +9,3 @@
 
 ![midway](https://user-images.githubusercontent.com/48630662/96352466-f12e6380-10e0-11eb-8cec-d393a95a2021.jpg)
 
-
-
-## Working Video
-> **[Video](https://www.dropbox.com/s/y8eibdosh5cwwtv/20201017_210238.mp4?dl=0)**
